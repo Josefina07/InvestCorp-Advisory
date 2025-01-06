@@ -1,0 +1,1 @@
+InvestCorp Advisory specializes in investment banking, supporting businesses in mergers and acquisitions (M&A), securities issuance, and financial risk management. With a team of experienced professionals, we develop groundbreaking financial strategies.
